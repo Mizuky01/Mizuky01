@@ -8,4 +8,4 @@
    ![](https://media.tenor.com/lCKwsD2OW1kAAAAi/happy-cat-happy-happy-cat.gif)
 
 
-- `espero gostarem dos meu futuros projetos` 🤠
+- `espero que gostem dos meus futuros projetos` 🤠
